@@ -1,1 +1,1 @@
-https://joshuaxex.github.io/josxex.github.io/
+https://joshuaxex.github.io/jos/
