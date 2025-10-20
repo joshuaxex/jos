@@ -1,4 +1,3 @@
-https://joshuaxex.github.io/jos/
 
 ![right (2)](https://github.com/user-attachments/assets/5eae6074-5d12-4afd-a2cf-aa28f0db6024)
 ![Left](https://github.com/user-attachments/assets/d20b9b59-8575-4260-a2d4-78253dd274d4)
